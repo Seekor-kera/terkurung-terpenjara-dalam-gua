@@ -1,0 +1,1 @@
+# terkurung-terpenjara-dalam-gua
